@@ -1,1 +1,1 @@
-Human beings can alter their lives by altering their attitudes of mind. | **by William James**
+Integrity is the ability to stand by an idea. | **by Ayn Rand**
