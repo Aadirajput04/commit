@@ -1,1 +1,1 @@
-What you get by achieving your goals is not as important as what you become by achieving your goals. | **by Henry David Thoreau**
+People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. | **by Franklin D. Roosevelt**
