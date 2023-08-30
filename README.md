@@ -1,1 +1,1 @@
-Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment. | **by Celestine Chua**
+The right thing to do and the hard thing to do are usually the same. | **by Steve Maraboli**
