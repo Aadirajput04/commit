@@ -1,1 +1,1 @@
-People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. | **by Franklin D. Roosevelt**
+Invisible things are the only realities. | **by Edgar Allan Poe**
