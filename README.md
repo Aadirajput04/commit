@@ -1,1 +1,1 @@
-Integrity is the ability to stand by an idea. | **by Ayn Rand**
+What you get by achieving your goals is not as important as what you become by achieving your goals. | **by Henry David Thoreau**
