@@ -1,1 +1,1 @@
-The right thing to do and the hard thing to do are usually the same. | **by Steve Maraboli**
+The truth is rarely pure and never simple.  | **by Oscar Wilde**
