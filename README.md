@@ -1,1 +1,1 @@
-There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose. | **by Elbert Hubbard**
+The ability to observe without evaluating is the highest form of intelligence. | **by Jiddu Krishnamurti**
