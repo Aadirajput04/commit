@@ -1,1 +1,1 @@
-The ability to observe without evaluating is the highest form of intelligence. | **by Jiddu Krishnamurti**
+The best thing to hold onto in life is each other. | **by Audrey Hepburn**
