@@ -1,1 +1,1 @@
-The best thing to hold onto in life is each other. | **by Audrey Hepburn**
+I don't pretend to know everything; I just only speak on matters I know I'll win. | **by Criss Jami**
