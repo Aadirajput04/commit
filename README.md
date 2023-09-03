@@ -1,1 +1,1 @@
-I don't pretend to know everything; I just only speak on matters I know I'll win. | **by Criss Jami**
+Watch what you say, and whatever you say, practice it. | **by Soyen Shaku**
