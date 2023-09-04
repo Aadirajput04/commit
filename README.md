@@ -1,1 +1,1 @@
-Watch what you say, and whatever you say, practice it. | **by Soyen Shaku**
+Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you. | **by Norman Vincent Peale**
