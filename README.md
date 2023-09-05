@@ -1,1 +1,1 @@
-Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you. | **by Norman Vincent Peale**
+Do Something. If it works, do more of it. If it doesn't, do something else. | **by Franklin D. Roosevelt**
