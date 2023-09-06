@@ -1,1 +1,1 @@
-Do Something. If it works, do more of it. If it doesn't, do something else. | **by Franklin D. Roosevelt**
+The man who removes a mountain begins by carrying away small stones. | **by William Faulkner**
