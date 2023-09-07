@@ -1,1 +1,1 @@
-The man who removes a mountain begins by carrying away small stones. | **by William Faulkner**
+Conscience is a man's compass.  | **by Vincent van Gogh**
