@@ -1,1 +1,1 @@
-Conscience is a man's compass.  | **by Vincent van Gogh**
+Create each day anew. | **by Morihei Ueshiba**
