@@ -1,1 +1,1 @@
-Create each day anew. | **by Morihei Ueshiba**
+Circumstances rule men; men do not rule circumstances.  | **by Herodotus**
