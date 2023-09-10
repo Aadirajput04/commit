@@ -1,1 +1,1 @@
-Circumstances rule men; men do not rule circumstances.  | **by Herodotus**
+I love fools' experiments. I am always making them. | **by Charles Darwin**
