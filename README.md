@@ -1,1 +1,1 @@
-I love fools' experiments. I am always making them. | **by Charles Darwin**
+Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  | **by Lao Tzu**
