@@ -1,1 +1,1 @@
-Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  | **by Lao Tzu**
+Thought is so cunning, so clever, that it distorts everything for its own convenience. | **by Jiddu Krishnamurti**
